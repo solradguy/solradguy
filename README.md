@@ -4,5 +4,5 @@ JO or LEE (he/him) <br>
 I like music, Guilty Gear, The Binding of Isaac,<br>
 Fear & Hunger, JJK, Trigun, Typology & YKW +<br>
 <br>
-Don't be afraid to talk to me (^_^)b <br>
+Don't be afraid to talk to me (^_^)b ![](https://komarev.com/ghpvc/?username=solradguy&color=000000&style=flat-square&label=🦗) <br>
 ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=elgjykck3q0llbegql1o5o61u&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false)<br>
