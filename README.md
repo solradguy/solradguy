@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=solradguy&color=000000&style=flat-square&label=🦗) <br>
 ![](https://www.fightersgeneration.com/characters3/roboky-lpetal.gif) 
-JO or LEE (he/him) <br>
+JO or LEE <br>
 <br>
 I like music, Guilty Gear & The Binding of Isaac <br>
 more about my ints -> https://baiken.straw.page <br>
