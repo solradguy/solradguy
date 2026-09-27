@@ -3,7 +3,7 @@
 JO or LEE <br>
 <br>
 I like music, Guilty Gear & The Binding of Isaac <br>
-more about my ints -> https://baiken.straw.page <br>
+stuff about me -> https://luvlee.straw.page <br>
 I also code & have a nekoweb in the works #Yay<br>
 <br>
 Don't be afraid to talk to me (^_^)b <br>
