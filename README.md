@@ -1,10 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=solradguy&color=000000&style=flat-square&label=🦗) <br>
 ![](https://www.fightersgeneration.com/characters3/roboky-lpetal.gif) 
 JO or LEE <br>
-<br>
-I like music, Guilty Gear & The Binding of Isaac <br>
-stuff about me -> https://luvlee.straw.page <br>
-I also code & have a nekoweb in the works #Yay<br>
-<br>
-Don't be afraid to talk to me (^_^)b <br>
+if u ugly dont talk to me
 ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=elgjykck3q0llbegql1o5o61u&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false)<br>
